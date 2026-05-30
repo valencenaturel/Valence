@@ -56,3 +56,17 @@ Il est essentiel de respecter les instructions d'utilisation indiquées sur l'em
 
 * **E-mail :** valencenaturel@gmail.com
 * **Adresse :** Saint-Maurin, France
+
+---
+
+## ⭐ Avis de nos clients
+
+* **⭐ ⭐ ⭐ ⭐ ⭐ — Jean P.**
+  "Très satisfait du produit Valence Minceur, expédition rapide et résultats visibles après quelques semaines."
+
+* **⭐ ⭐ ⭐ ⭐ — Marie L.**
+  "Le produit pour le colon m'a beaucoup aidée pour le confort digestif. Je recommande."
+
+* **⭐ ⭐ ⭐ ⭐ ⭐ — Thomas B.**
+  "Une excellente qualité pour des ingrédients naturels. Le service client est très réactif."
+  
