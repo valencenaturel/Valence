@@ -12,7 +12,8 @@ Chez **VALENCE**, nous croyons que le soin du corps commence par la nature. Nous
 ## Nos Produits
 
 ### VALENCE MINCEUR
-![VALENCE MINCEUR]()
+![VALENCE MINCEUR] <img width="1024" height="1024" alt="17801631094417858745424841606330" src="https://github.com/user-attachments/assets/b94efda9-37f9-4727-9f34-614c98142035" />
+
 
 **Prix : 12.00 €**
 
