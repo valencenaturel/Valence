@@ -12,11 +12,18 @@ Chez **VALENCE**, nous croyons que le soin du corps commence par la nature. Nous
 ## Nos Produits
 
 ### VALENCE MINCEUR
+![VALENCE MINCEUR]()
+
+**Prix : 12.00 €**
+
 *Accompagnement pour la gestion du poids*
 Une formule contenant des ingrédients naturels sélectionnés pour s'intégrer parfaitement dans le cadre d'un régime alimentaire équilibré et d'un mode de vie actif.
 👉 *[En savoir plus]*
 
 ### VALENCE COLON
+
+**Prix : 8.00 €**
+
 *Soutien du confort digestif*
 Une formule à base d'ingrédients végétaux et de fibres alimentaires pour aider à soutenir la santé et le bien-être du système digestif.
 👉 *[En savoir plus]*
