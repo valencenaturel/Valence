@@ -22,7 +22,6 @@ Une formule contenant des ingrédients naturels sélectionnés pour s'intégrer 
 👉 *[En savoir plus]*
 
 ### VALENCE COLON
-<img width="1024" height="1024" alt="17801689124638385987552833074573" src="https://github.com/user-attachments/assets/023b86d4-e22b-41bb-877b-ab28f5ef9a62" />
 
 
 **Prix : 8.00 €**
