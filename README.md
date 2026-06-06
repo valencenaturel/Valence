@@ -30,6 +30,16 @@ Une formule contenant des ingrédients naturels sélectionnés pour s'intégrer 
 Une formule à base d'ingrédients végétaux et de fibres alimentaires pour aider à soutenir la santé et le bien-être du système digestif.
 👉 *[En savoir plus]*
 
+
+VALENCE Articulations
+<a href="https://ibb.co/W4dhbRg2"><img src="https://i.ibb.co/hJn6PTDm/1780692401025-2.jpg" alt="1780692401025-2" border="0"></a>
+​Prix : 8.00 €
+​Une formule naturelle enrichie en Boswellia, Curcuma et Gingembre pour favoriser la souplesse articulaire et maintenir le bien-être de votre système locomoteur. [En savoir plus] 👉
+
+VALENCE Antidépresseur
+<a href="https://ibb.co/3y5vw6T4"><img src="https://i.ibb.co/N6grXDFt/1780696178990-2.jpg" alt="1780696178990-2" border="0"></a>
+​Prix : 8.00euros
+​Une combinaison naturelle d'hypéricine et de mélisse, conçue pour soutenir l'équilibre émotionnel et favoriser une humeur sereine au quotidien. [En savoir plus] 👉
 ---
 
 ## Pourquoi VALENCE ?
