@@ -54,6 +54,8 @@ VALENCE Articulations
 ​Une formule naturelle enrichie en Boswellia, Curcuma et Gingembre pour favoriser la souplesse articulaire et maintenir le bien-être de votre système locomoteur. [En savoir plus] 👉
 
 
+
+
 VALENCE Cheveux & Ongles Forts
 
 <a href="https://ibb.co/rRbfF9cs"><img src="https://i.ibb.co/PvTzFk9Q/file-00000000083c71f4b355d574d0ef29d8.png" alt="file-00000000083c71f4b355d574d0ef29d8" border="0"></a>
@@ -62,10 +64,17 @@ VALENCE Cheveux & Ongles Forts
 
 ​Une formule complète enrichie en biotine, kératine, bambou et oligo-éléments pour stimuler la croissance capillaire, renforcer la fibre, fortifier vos ongles et redonner éclat et vitalité à votre beauté naturelle. [En savoir plus] 👉
 ـ
+
+
 VALENCE Antidépresseur
 
 <a href="https://ibb.co/3y5vw6T4"><img src="https://i.ibb.co/N6grXDFt/1780696178990-2.jpg" alt="1780696178990-2" border="0"></a>
 ​
+
+Prix : 8.00euros
+​Une combinaison naturelle d'hypéricine et de mélisse, conçue pour soutenir l'équilibre émotionnel et favoriser une humeur sereine au quotidien. [En savoir plus] 👉
+
+
 
 VALENCE Cœur Sain
 
@@ -76,8 +85,6 @@ VALENCE Cœur Sain
 
 ​Une formule 100% naturelle à base d'ail noir, aubépine, feuille d'olivier et Q10, conçue pour soutenir le bon fonctionnement cardiaque, maintenir une tension normale, réguler le taux de cholestérol et offrir une protection antioxydante puissante à votre cœur. [En savoir plus] 👉
 
-Prix : 8.00euros
-​Une combinaison naturelle d'hypéricine et de mélisse, conçue pour soutenir l'équilibre émotionnel et favoriser une humeur sereine au quotidien. [En savoir plus] 👉
 ---
 
 ## Pourquoi VALENCE ?
