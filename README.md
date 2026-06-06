@@ -75,6 +75,7 @@ Il est essentiel de respecter les instructions d'utilisation indiquées sur l'em
 
 * **E-mail :** valencenaturel@gmail.com
 * **Adresse :** Saint-Maurin, France
+* Laboratoires ARKOPHARMA, 1ère avenue, 2709 M - LID de Carros le Broc, 06510 Carros, France
 
 ---
 
