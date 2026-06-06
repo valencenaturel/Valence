@@ -20,6 +20,7 @@ Chez **VALENCE**, nous croyons que le soin du corps commence par la nature. Nous
 *Accompagnement pour la gestion du poids*
 Une formule contenant des ingrédients naturels sélectionnés pour s'intégrer parfaitement dans le cadre d'un régime alimentaire équilibré et d'un mode de vie actif.
 👉 *[En savoir plus]*
+---
 
 ### VALENCE COLON
 
@@ -31,7 +32,18 @@ Une formule contenant des ingrédients naturels sélectionnés pour s'intégrer 
 *Soutien du confort digestif*
 Une formule à base d'ingrédients végétaux et de fibres alimentaires pour aider à soutenir la santé et le bien-être du système digestif.
 👉 *[En savoir plus]*
+ـ
+ــــــ
 
+
+VALENCE Immunité Naturelle
+
+<a href="https://ibb.co/1GC7sdFh"><img src="https://i.ibb.co/WvrGDPmq/file-00000000b38872438a79e4d0fd750d64.png" alt="file-00000000b38872438a79e4d0fd750d64" border="0"></a>
+
+
+​Prix : 8.00€ euros
+​Une synergie puissante à base d'échinacée, propolis, sureau noir, vitamine C et zinc pour renforcer vos défenses naturelles, soutenir votre système respiratoire et protéger votre organisme contre le stress oxydatif. [En savoir plus] 👉
+ـــ
 
 VALENCE Articulations
 
@@ -41,10 +53,28 @@ VALENCE Articulations
 ​Prix : 8.00 €
 ​Une formule naturelle enrichie en Boswellia, Curcuma et Gingembre pour favoriser la souplesse articulaire et maintenir le bien-être de votre système locomoteur. [En savoir plus] 👉
 
+
+VALENCE Cheveux & Ongles Forts
+
+<a href="https://ibb.co/rRbfF9cs"><img src="https://i.ibb.co/PvTzFk9Q/file-00000000083c71f4b355d574d0ef29d8.png" alt="file-00000000083c71f4b355d574d0ef29d8" border="0"></a>
+
+​Prix : 16€ euros
+
+​Une formule complète enrichie en biotine, kératine, bambou et oligo-éléments pour stimuler la croissance capillaire, renforcer la fibre, fortifier vos ongles et redonner éclat et vitalité à votre beauté naturelle. [En savoir plus] 👉
+ـ
 VALENCE Antidépresseur
 
 <a href="https://ibb.co/3y5vw6T4"><img src="https://i.ibb.co/N6grXDFt/1780696178990-2.jpg" alt="1780696178990-2" border="0"></a>
 ​
+
+VALENCE Cœur Sain
+
+<a href="https://ibb.co/1GmmSB6x"><img src="https://i.ibb.co/hFmmqrfv/file-00000000d6dc71f4a201344c54307805.png" alt="file-00000000d6dc71f4a201344c54307805" border="0"></a>
+
+
+​Prix : 23€ euros
+
+​Une formule 100% naturelle à base d'ail noir, aubépine, feuille d'olivier et Q10, conçue pour soutenir le bon fonctionnement cardiaque, maintenir une tension normale, réguler le taux de cholestérol et offrir une protection antioxydante puissante à votre cœur. [En savoir plus] 👉
 
 Prix : 8.00euros
 ​Une combinaison naturelle d'hypéricine et de mélisse, conçue pour soutenir l'équilibre émotionnel et favoriser une humeur sereine au quotidien. [En savoir plus] 👉
